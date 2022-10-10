@@ -1,1 +1,1 @@
-Yegor, Moscow State University second-year student, 19 y.o. 
+Yegor, Moscow State University third-year student, 20 y.o. 
